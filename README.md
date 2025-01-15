@@ -1,4 +1,4 @@
-# Privacy Policy
+# Eterice Privacy Policy
 
 **Effective Date:** January 14, 2025  
 
